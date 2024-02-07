@@ -5,7 +5,7 @@
 - 💞️ I’m looking to collaborate on game projects
 - 📫 How to reach me: telegramm: S1nonnn
 - 😄 Pronouns: Aktan
-- ⚡ Fun fact: i am good at math
+- ⚡ Fun fact: i am good at math	&#9785;
 
 
 
